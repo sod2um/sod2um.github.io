@@ -1,1 +1,0 @@
-# sod2um.github.io
